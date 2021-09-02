@@ -1,1 +1,1 @@
-{"open": 1, "url": "https:\/\/https://wx44s.vip/"}
+{"open": 0, "url": "https:\/\/https://wx44s.vip/"}
